@@ -1,4 +1,4 @@
-<h2 align="center">Discord Server: <a href="https://discord.gg/catcha">discord.gg/catcha</a></h2>
+<h2 align="center">Discord Server: <a href="https://discord.com/invite/hktVzrff54">https://discord.com/invite/hktVzrff54</a></h2>
 
 <h1><a href="https://www.tiktok.com/@nsl.dev/video/7135531135487970566?is_from_webapp=1&sender_device=pc&web_id=7117334792081442309">Tuto Here</a></h1>
 
